@@ -1,1 +1,1 @@
-https://PandaBoss13.github.io/rsschool-cv/cv
+https://pandaboss13.github.io/rsschool-cv/cv
